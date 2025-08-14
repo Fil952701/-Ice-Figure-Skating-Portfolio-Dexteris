@@ -50,7 +50,8 @@ These qualities directly influence my professional life in **AI research**, **mu
 ## 🔗 Connect & Follow
 - 💼 [LinkedIn — Filippo Matteini](https://www.linkedin.com/in/filippo-matteini-29554a355?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)  
 - 🌐 [GitHub — Fil952701](https://github.com/Fil952701)  
-- 🎹🧠🎮 [Patreon — Dexteris](https://www.patreon.com/Dexteris?utm_campaign=creatorshare_creator)  
+- 🧠🎮 [Patreon — Dexteris](https://www.patreon.com/Dexteris?utm_campaign=creatorshare_creator)  
+- 🎼🎹 [YouTube - Dexteris](https://youtube.com/@dexteris27?si=KfOOjCxYjSdRBF1D)
 
 ---
 
